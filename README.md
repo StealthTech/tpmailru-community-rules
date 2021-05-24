@@ -1,0 +1,1 @@
+# tpmailru-community-rules
